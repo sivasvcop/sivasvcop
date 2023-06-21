@@ -17,7 +17,7 @@ https://www.linkedin.com/in/g-siva-kumar-7172188b/
 
 EXPERIENCE
 
-In my M.S. Pharm and Doctoral research, I implemented various molecular modelling studies on various therapeutic targets to design and develop first-in-class and best-in-class molecules from 2013 to 2021 at NIPER, Mohali, India. My passion for science and research boosted me to collaborate with people from multidisciplinary fields to find real answers to unsolved challenging problems in pharmaceutical, biotech and biomedical sciences.   
+In my M.S. Pharm and Doctoral research, I implemented various molecular modelling and digital chemistry studies on various therapeutic targets to design and develop first-in-class and best-in-class molecules from 2013 to 2021 at NIPER, Mohali, India. My passion for science and research boosted me to collaborate with people from multidisciplinary fields to find real answers to unsolved challenging problems in pharmaceutical, biotech and biomedical sciences.   
 
 RESEARCH COLLABORATIONS WITH
 
