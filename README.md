@@ -29,7 +29,7 @@ Pharmacoinformatics, Bioinformatics, Cheminformatics, Python, Bioperl.
 GOOGLE SCHOLAR PAGE:
 https://scholar.google.com/citations?user=O5eDrD4AAAAJ&hl=en
 
-ACHIEVEMENTS
+ACHIEVEMENTS: 
 Secured AIR 1 in NIPER Ph.D. entrance examination in Pharmacoinformatics conducted by NIPER JEE in 2015.
 
 
