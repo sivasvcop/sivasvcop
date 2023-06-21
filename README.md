@@ -11,6 +11,9 @@ I pursued Ph.D. under the supervision of Prof. M. Elizabeth Sobhia, NIPER, Mohal
 
 I Pursued M.S. (Pharm.) under the supervision of Prof. Prasad V. Bharatam, NIPER, Mohali.
 
+LinkedIn Profile 
+https://www.linkedin.com/in/g-siva-kumar-7172188b/
+
 EXPERIENCE
 
 In my M.S. Pharm and doctoral research, I implemented various molecular modelling studies on various therapeutic targets to design and develop first-in-class and best-in-class molecules from 2013 to 2021. My passion for science and research boosted me to collaborate with people from multidisciplinary fields to find real answers to unsolved challenging problems in pharmaceutical, biotech and biomedical sciences.   
